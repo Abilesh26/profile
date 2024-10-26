@@ -1,1 +1,1 @@
-https://abilesh26.github.io/new_profile/
+https://abilesh26.github.io/profile/
